@@ -1,2 +1,2 @@
 # Universal-Aimbot
-credits to the original maker of this
+credits to the original makers of these
